@@ -1,4 +1,4 @@
 -  Salut, I’m Sellery
 -  I currently learn how to make maps for Games(Assetto Corsa/CarX)
 -  I'm willing to try out (new) things and if you have tips plz they're welcome
--  You can reach me on Discord :.sellery.
+-  You can reach me on Discord:.sellery.
